@@ -1,4 +1,4 @@
-# 
+# Exclusivo Adobe InDesign flujo de trabajo para Mac OS | VIP Adobe InDesign flujo de trabajo para PC Windows. Con procesamiento por lotes y curvas de Bézier — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
